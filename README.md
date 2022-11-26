@@ -29,7 +29,7 @@ and coding!:computer:
 <img align="left" alt="Tg" width="26px" src="https://raw.githubusercontent.com/github/explore/d92924b1d925bb134e308bd29c9de6c302ed3beb/topics/terminal/terminal.png"/><br/>
 
 ### You can contact me:<br/>
-<img align="left" alt="Tg" width="26px" src="https://pngicon.ru/file/uploads/instagram.png"/>  @zolafarre
+<img align="left" alt="Tg" width="26px" src="https://pngicon.ru/file/uploads/instagram.png"/>  @zolafarre <br/>
 <img align="left" alt="Tg" width="26px" src="https://play-lh.googleusercontent.com/Wvjx6rVlC1rGWKkln3r-23ICKV--sxEEUuq7jd15BeJan8v-wS7TGwm0NHXqqon18w"/> Zolafarre#8589
 
  
