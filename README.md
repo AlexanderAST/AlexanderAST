@@ -33,7 +33,9 @@ and coding!:computer:
 
 ### You can contact me:<br/>
 <img align="left" alt="Tg" width="26px" src="https://pngicon.ru/file/uploads/instagram.png"/>  @zolafarre <br/>
-<img align="left" alt="Tg" width="26px" src="https://play-lh.googleusercontent.com/Wvjx6rVlC1rGWKkln3r-23ICKV--sxEEUuq7jd15BeJan8v-wS7TGwm0NHXqqon18w"/> Zolafarre#8589
+<img align="left" alt="Tg" width="26px" src="https://play-lh.googleusercontent.com/Wvjx6rVlC1rGWKkln3r-23ICKV--sxEEUuq7jd15BeJan8v-wS7TGwm0NHXqqon18w"/> Zolafarre#8589 <br/>
+<img align="left" alt="Tg" width="26px" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/telegram/telegram.png"/> @Zolafarre_AS
+
 
  
 
