@@ -7,6 +7,7 @@
 -Moscow 👌<br/>
 -Student 🎓<br/>
 -Developer 🧑‍💻<br/>
+-Work in crypto 💰💵<br/>
 
 ### I like: <br/>
 -Metal Music 🤘<br/>
