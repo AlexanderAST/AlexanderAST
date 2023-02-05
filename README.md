@@ -1,5 +1,5 @@
 ## Hello, I'm Alexander 👨‍💻👋
-### I'm a Front-end web developer!🤩
+### I'm a Full-stack developer!🤩
 
 ### About me:<br/>
 -Male 🧔<br/>
