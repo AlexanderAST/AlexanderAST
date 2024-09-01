@@ -5,7 +5,6 @@
 -Male 🧔<br/>
 -20 y.o 👴 <br/>
 -Moscow 👌<br/>
--Student 🎓<br/>
 -Developer 🧑‍💻<br/>
 
 ### I like: <br/>
@@ -13,7 +12,6 @@
 -Games 🎮<br/>
 -Guitar 🎸<br/>
 
-and coding!:computer:
 
 
 ## My professional skills and tools:<br/>
