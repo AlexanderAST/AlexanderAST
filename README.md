@@ -3,7 +3,7 @@
 
 ### About me:<br/>
 -Male 🧔<br/>
--20 y.o 👴 <br/>
+-21 y.o 👴 <br/>
 -Moscow 👌<br/>
 -Developer 🧑‍💻<br/>
 
